@@ -1,3 +1,3 @@
 Hi 🤝
 
-[My resume](https://www.resume.id/sota1235)(in Japanese)
+[My resume](https://sota1235.notion.site/README-sota1235-8457ce326b8f4b86aa1739de42891cdb?pvs=4)(in Japanese)
